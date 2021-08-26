@@ -1,4 +1,4 @@
-## I BELIEVE...
+## I believe...
 
 * That to have a friend, a man must be one.
 
@@ -19,3 +19,5 @@
 * That all things change but truth, and that truth alone, lives on forever.
 
 * In my Creator, my country, my fellow man.
+
+George W. Trendle
