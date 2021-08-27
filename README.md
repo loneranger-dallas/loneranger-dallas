@@ -20,4 +20,4 @@
 
 * In my Creator, my country, my fellow man.
 
-George W. Trendle
+Fran Striker
